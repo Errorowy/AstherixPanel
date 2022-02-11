@@ -1,3 +1,5 @@
-# Programming
-My programs / websites / and more
-Programy / strony / i inne
+Astherix Panel Website
+This website are very lazy.
+Coming Soon.
+
+Author: Errorowy#0537
