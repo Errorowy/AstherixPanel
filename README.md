@@ -1,4 +1,4 @@
-Astherix Panel Website
+Astherix Panel Website.
 This website are very lazy.
 Coming Soon.
 
